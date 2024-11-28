@@ -47,4 +47,3 @@ https://www.ub8n.live/register/6paln78c</a></span></p>
 玩法多得很，彩票类 棋牌类 电子竞技 
 真人百家乐 体育竞彩 不过在优游还是玩彩票类多，比如时时彩 分分彩 还有11选5</p>
 <p dir="auto">
-本文链接：<a href="https://github.com/ub8-china/-">https://github.com/ub8-china</a></p>
